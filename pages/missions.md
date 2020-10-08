@@ -1,5 +1,6 @@
 ---
 title: Missions
+public: true
 ---
 
-## 
+##
