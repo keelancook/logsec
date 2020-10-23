@@ -44,7 +44,7 @@ All nations means there is no exclusion concerning the gospel. No one is worthy 
 All nations means we have a responsibility to those who are different than us, no matter who they may be. Since God loves all nations, all people, regardless of their heritage, so should we.
 
 All nations means we cannot just have a preoccupation with what is familiar. What is comfortable. All nations means we are required to cross some boundaries.
-# Jesus sends his church...
+# **Jesus sends his church...**
 ## And because God loves all nations, Jesus sends his church...
 ### There is a reason the Great Commission starts with the word **go**.
 ### It has been popular at points in church history to say that this commission was only for the 12 apostles. Or, only for pastors and leaders in the church. In fact, a lot of us practice it that way today. We want to say that Jesus told just pastors to make disciples.
