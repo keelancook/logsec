@@ -2,7 +2,7 @@
 title: United We Stand
 ---
 
-## # United We Stand: The Great Commission and Race
+## United We Stand: The Great Commission and Race
 ---
 Text: [[Matthew 28:18-20]]
 Topics: [[Great Commission]] | [[Missions]] | [[Race]]
@@ -41,7 +41,6 @@ The Mission Will Not Fail
 Before we get into the particulars of that mission, I want us to look at that last statement I made. That the mission will not fail. That's a bold claim. How can we even know that is true?
 
 Let me give you two quick reasons.
-
 ### Because Christ has all authority.
 
 First, Jesus begins his commission to the church talking about his authority. The Great Commission is packed full of statements that use the word all. It was Matthew's way of making sure his readers understood just how big this commission is. Notice that the first all statement has nothing to do with us and everything to do with Jesus.
