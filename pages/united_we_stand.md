@@ -2,6 +2,46 @@
 title: United We Stand
 ---
 
+## # United We Stand: The Great Commission and Race
+---
+Text: [[Matthew 28:18-20]]
+Topics: [[Great Commission]] | [[Missions]] | [[Race]]
+
+---
+
+At the very center of the Bible’s message is the firm promise that God is going to change the whole world, completely and totally change the world.
+
+That's a big deal, and the Bible actually says more. It says that Christ's church plays a key role in that mission. Two thousand years ago, right after Jesus’ death, burial, and resurrection, he told his church specifically what kind of work they were to be doing. They would be his witnesses, and it was no less than a global mission. 
+
+We refer to it today as the Great Commission. It's one of those places in the Bible where we can see so clearly God's love for all people, regardless of their background, their culture, their language, or their ethnicity.
+
+And back then, a small group of just over 100 people took Christ’s command and promise and sparked the largest, most diverse movement in the history of the world. 
+
+**But hear this:** that mission is no less pressing for us as a local church today than it was for that small band of believers after the resurrection.
+
+David Platt says it this way:
+
+> Global mission is the purpose of your life. Everything you have been given in your life – your breath, your salvation, your family, your gifts, your resources, your position – everything you have, you’ve been given for this reason: the spread of God’s global glory.
+
+The Great Commission is perhaps the most important directive in the Bible for the church. In fact, the whole reason the church exists can be summed up in these words.
+
+Let's take a look at the actual passage now:
+
+> The eleven disciples traveled to Galilee, to the mountain where Jesus had directed them. When they saw him, they worshiped, but some doubted. Jesus came near and said to them, “All authority has been given to me in heaven and on earth. Go, therefore, and make disciples of all nations, baptizing them in the name of the Father and of the Son and of the Holy Spirit, teaching them to observe everything I have commanded you. And remember, I am with you always, to the end of the age. (Matthew 28:16-20)
+
+This is what I want you to hear today:
+
+**Because God loves all nations, Jesus empowers and sends his church on a global mission to proclaim his glory to those who are different than us. And that mission will not fail.**
+
+For the rest of the sermon, I want us to unpack that statement.
+
+The Mission Will Not Fail
+-------------------------
+
+Before we get into the particulars of that mission, I want us to look at that last statement I made. That the mission will not fail. That's a bold claim. How can we even know that is true?
+
+Let me give you two quick reasons.
+
 ### Because Christ has all authority.
 
 First, Jesus begins his commission to the church talking about his authority. The Great Commission is packed full of statements that use the word all. It was Matthew's way of making sure his readers understood just how big this commission is. Notice that the first all statement has nothing to do with us and everything to do with Jesus.
@@ -112,4 +152,31 @@ Think back to that passage we discussed in Revelation. In John's vision of the n
 
 On this side of heaven, we should do all we can to see that diversity and celebrate that diversity. We should celebrate diversity in our own church, and we should celebrate churches that are different than our own culturally. For us to reach a city as big as Houston, it will take churches of all shapes and sizes that meet in all kinds of different languages. No one church can do that by itself. This is why partnering and fellowshipping with other churches from different cultures is so important. When we strive for diversity in our church, and celebrate and cooperate with the cultural diversity of other churches, then we start to become a preview for those around us of what is to come.
 
+## Application
+
+Let's recap:
+
+Because God loves all nations, Jesus empowers and sends his church on a global mission to proclaim his glory to those who are different than us.
+
+But what does that look like practically for you? I want to leave you today with three specific challenges.
+
+Making disciples of all nations requires:
+
+1.  Treating others as more important than yourself.
+2.  Sacrificing for those who are different than you.
+3.  Telling the gospel to others.
+
+I want you to ask yourself, how am I doing on those three things?
+
+Making disciples of all nations requires treating others as more important than yourself. When it comes to crossing boundaries and engaging people with a different heritage or culture, that means valuing and appreciating their heritage and culture. We've got to learn to listen and respect. No cultural background is perfect. Sin has affected all of our cultures. But that point should bring humility, not arrogance, when it comes to dealing with others, because it means that sin has left its mark on your heritage too.
+
+Making disciples of all nations requires sacrificing for those who are different than you. In a big sense, this is giving up your life so that those different than you can hear the gospel. That's exactly what Paul did in the New Testament. He left his home and traveled away from his own people in order to proclaim God's glory among different people. It's what Paul did, and it's what the Great Commission calls us to do.
+
+In a smaller, more everyday sense, it's going places you wouldn't normally go, being with people you normally wouldn't be with, and doing things you normally wouldn't do. It is setting aside your preferences. It is choosing to cross boundaries created by culture and value what you find on the other side.
+
+Finally, making disciples of all nations requires actually telling the gospel to others. You do not truly love others if you keep the most important news in history from them.
+
+So again, I challenge you to ask yourself, how am I doing these things? Talk together as a family or as a loop group, and encourage one another in these practices. The Great Commission is too important not to.
+
+You see, the Great Commission was Jesus's final words to his church before he ascended to heaven. Final words are important words.
 ##
