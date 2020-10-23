@@ -67,7 +67,7 @@ All nations means we cannot just have a preoccupation with what is familiar. Wha
 ### There are large portions of the world right now where Christianity is actively persecuted. Where people can be born, live their whole lives, and die, and never hear about the only name that saves.
 ### Perhaps more shocking is the number of people right here in Houston that have never heard the gospel. We all know this, people come to Houston from all over the world. We're the most diverse city in the United States.
 ### Thousands come here from the places least-reached with the gospel. Has it ever crossed your mind that you may be their very first opportunity to hear about Jesus?
-## So Jesus sends us on a global mission to proclaim his glory.
+## **_So Jesus sends us on a global mission to proclaim his glory._**
 # **to proclaim his glory... **
 ## That's why we go, that's why we cross boundaries to others. But, how do we proclaim his glory? He tells us right here: by making disciples.
 ## There is way more to be said about how to make disciples than we can accomplish in a few minutes here, but let me break that command down into two simple ideas: _**reaching and teaching**_.
