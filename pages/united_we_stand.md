@@ -2,7 +2,6 @@
 title: United We Stand: The Great Commission and Race
 ---
 
-## United We Stand: The Great Commission and Race
 ### _Meta_
 ---
 Text: [[Matthew 28:18-20]]
