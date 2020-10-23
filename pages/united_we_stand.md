@@ -3,7 +3,6 @@ title: United We Stand
 ---
 
 ## # United We Stand: The Great Commission and Race
-##
 ---
 Text: [[Matthew 28:18-20]]
 Topics: [[Great Commission]] | [[Missions]] | [[Race]]
@@ -180,3 +179,4 @@ Finally, making disciples of all nations requires actually telling the gospel to
 So again, I challenge you to ask yourself, how am I doing these things? Talk together as a family or as a loop group, and encourage one another in these practices. The Great Commission is too important not to.
 
 You see, the Great Commission was Jesus's final words to his church before he ascended to heaven. Final words are important words.
+##
