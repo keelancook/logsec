@@ -152,31 +152,4 @@ Think back to that passage we discussed in Revelation. In John's vision of the n
 
 On this side of heaven, we should do all we can to see that diversity and celebrate that diversity. We should celebrate diversity in our own church, and we should celebrate churches that are different than our own culturally. For us to reach a city as big as Houston, it will take churches of all shapes and sizes that meet in all kinds of different languages. No one church can do that by itself. This is why partnering and fellowshipping with other churches from different cultures is so important. When we strive for diversity in our church, and celebrate and cooperate with the cultural diversity of other churches, then we start to become a preview for those around us of what is to come.
 
-## Application
-
-Let's recap:
-
-Because God loves all nations, Jesus empowers and sends his church on a global mission to proclaim his glory to those who are different than us.
-
-But what does that look like practically for you? I want to leave you today with three specific challenges.
-
-Making disciples of all nations requires:
-
-1.  Treating others as more important than yourself.
-2.  Sacrificing for those who are different than you.
-3.  Telling the gospel to others.
-
-I want you to ask yourself, how am I doing on those three things?
-
-Making disciples of all nations requires treating others as more important than yourself. When it comes to crossing boundaries and engaging people with a different heritage or culture, that means valuing and appreciating their heritage and culture. We've got to learn to listen and respect. No cultural background is perfect. Sin has affected all of our cultures. But that point should bring humility, not arrogance, when it comes to dealing with others, because it means that sin has left its mark on your heritage too.
-
-Making disciples of all nations requires sacrificing for those who are different than you. In a big sense, this is giving up your life so that those different than you can hear the gospel. That's exactly what Paul did in the New Testament. He left his home and traveled away from his own people in order to proclaim God's glory among different people. It's what Paul did, and it's what the Great Commission calls us to do.
-
-In a smaller, more everyday sense, it's going places you wouldn't normally go, being with people you normally wouldn't be with, and doing things you normally wouldn't do. It is setting aside your preferences. It is choosing to cross boundaries created by culture and value what you find on the other side.
-
-Finally, making disciples of all nations requires actually telling the gospel to others. You do not truly love others if you keep the most important news in history from them.
-
-So again, I challenge you to ask yourself, how am I doing these things? Talk together as a family or as a loop group, and encourage one another in these practices. The Great Commission is too important not to.
-
-You see, the Great Commission was Jesus's final words to his church before he ascended to heaven. Final words are important words.
 ##
