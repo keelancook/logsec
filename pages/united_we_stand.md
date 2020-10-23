@@ -1,6 +1,6 @@
 ---
 title: United We Stand: The Great Commission and Race
-published: true
+published: false
 permalink: united%20we%20stand%3A%20the%20great%20commission%20and%20race
 ---
 
@@ -16,6 +16,11 @@ That's a big deal, and the Bible actually says more. It says that Christ's churc
 
 We refer to it today as the Great Commission. It's one of those places in the Bible where we can see so clearly God's love for all people, regardless of their background, their culture, their language, or their ethnicity.
 #### And back then, a small group of just over 100 people took Christ’s command and promise and sparked the largest, most diverse movement in the history of the world.
+#### **But hear this:** that mission is no less pressing for us as a local church today than it was for that small band of believers after the resurrection.
+### David Platt says it this way:
+> Global mission is the purpose of your life. Everything you have been given in your life – your breath, your salvation, your family, your gifts, your resources, your position – everything you have, you’ve been given for this reason: the spread of God’s global glory.
+### **But hear this:** that mission is no less pressing for us as a local church today than it was for that small band of believers after the resurrection.
+### And back then, a small group of just over 100 people took Christ’s command and promise and sparked the largest, most diverse movement in the history of the world.
 #### **But hear this:** that mission is no less pressing for us as a local church today than it was for that small band of believers after the resurrection.
 #### David Platt says it this way:
 > Global mission is the purpose of your life. Everything you have been given in your life – your breath, your salvation, your family, your gifts, your resources, your position – everything you have, you’ve been given for this reason: the spread of God’s global glory.
