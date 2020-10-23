@@ -58,11 +58,8 @@ In God's word to us, he actually gives us a glimpse into the future. One of his 
 Now that's a vision! In the end, after this world is no more and creation moves into the new heavens and new earth, we find an innumerable multitude of disciples. The command to make disciples has been fulfilled. It worked, and there are so many they can't be counted.
 
 But it's more than that. Looking at that crowd, John sees people from all tribes, speaking all languages. The global mission has gathered people from all nations, and the result is a diverse mosaic of nationalities and cultures represented around the throne of God, and they are all worshiping the Lamb that was slain for them.
-
-Because God loves all nations.
-------------------------------
-
-Why? Because God loves all nations.
+### ## Because God loves all nations.
+### Why? Because God loves all nations.
 
 When Christ, in his commission, says "all nations" that means no one is left out of our disciple-making mission. There is no room for preference or discrimination, regardless of current religion, culture, or nationality. That includes those who are in our neighborhoods and those who are on the other side of the world. We have the responsibility to cross both streets and oceans with the gospel. God commissions us, as the church, to take the gospel to people who are different than us.
 
@@ -92,7 +89,6 @@ Another real common mistake lately is to make it a passive suggestion. It's beco
 The Great Commission is not telling us to just do life and if we stumble into making a disciple that's good. It is telling us all of our life is supposed to be oriented, redirected, around this last command given by Jesus to his church.
 
 So, we go, and we go to the nations. We're not supposed to sit around and wait on them to come to us.
-
 ### on a global missions...
 
 Jesus sends his church, and he sends us on a global mission.
