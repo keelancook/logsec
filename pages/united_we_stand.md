@@ -75,42 +75,41 @@ All nations means we cannot just have a preoccupation with what is familiar. Wha
 ## We are witnesses by reaching those who are not yet Christians. We do this by sharing the good news of Christ and what he has accomplished in his death and resurrection. We see this in the Great Commission when Jesus tells us to baptize new disciples. Of course, baptism does not save anyone, but for the person baptized, it is their confession that God has changed their life and they've crossed that line into faith.
 ## But, making disciples is more than reaching. It's also teaching them to obey all that Christ has commanded. That's an ongoing process. In fact, the teaching part is something we do for the rest of our lives, both as teachers and students. It's about a whole life Christian ethic that we live under the lordship of Christ. So, we are witnesses by teaching others with lives and lips to obey all of God's instructions.
 ## _**So, Jesus sends his church to proclaim his glory by making disciples.**_
-# to those who are different than us.
+# **to those who are different than us.**
+## But I want to press us here. You see, the Great Commission is a call to cross barriers. It calls us to those who are different than us.
+## In order to do that, to make disciples of all nations, we need to do two very important things:
+### **First, we must recognize the unity of all nations.** We are all children of Adam. We all descend from those first parents, and no race or ethnicity is more valuable than another. Furthermore, God wants them all. Christ died for them all. In Christ, regardless of our heritage, culture, language, and ethnicity, we all become part of the same family. Matthew says we make disciples of all nations, and we baptize them all into that same family that is the church. There is a unity among all nations.
+### **But second, we must celebrate the diversity of all nations.** Though we are unified in the gospel, that does not mean it is colorblind. You hear people say that a lot today, and even if they mean well, that's not actually what the Bible is after when it speaks of ethnic and cultural differences. Instead, the Bible celebrates cultural distinctions as part of the beautiful human mosaic. Humanity is a colorful tapestry, and it was supposed to be that way from the very beginning, and when the kingdom is finally consummated, we will see that diversity on display.
+## Think back to that passage we discussed in Revelation. In John's vision of the new heavens and new earth, cultures are not gone, languages are not gone, and ethnic differences are not gone. If they make it into that perfect world that is to come, they're not a result of the curse of sin. Human diversity was God's plan all along.
+## On this side of heaven, we should do all we can to see that diversity and celebrate that diversity. We should celebrate diversity in our own church, and we should celebrate churches that are different than our own culturally. For us to reach a city as big as Houston, it will take churches of all shapes and sizes that meet in all kinds of different languages. No one church can do that by itself. This is why partnering and fellowshipping with other churches from different cultures is so important. When we strive for diversity in our church, and celebrate and cooperate with the cultural diversity of other churches, then we start to become a preview for those around us of what is to come.
+# Application
 
-But I want to press us here. You see, the Great Commission is a call to cross barriers. It calls us to those who are different than us.
+Let's recap:
 
-In order to do that, to make disciples of all nations, we need to do two very important things:
+Because God loves all nations, Jesus empowers and sends his church on a global mission to proclaim his glory to those who are different than us.
 
-**First, we must recognize the unity of all nations.** We are all children of Adam. We all descend from those first parents, and no race or ethnicity is more valuable than another. Furthermore, God wants them all. Christ died for them all. In Christ, regardless of our heritage, culture, language, and ethnicity, we all become part of the same family. Matthew says we make disciples of all nations, and we baptize them all into that same family that is the church. There is a unity among all nations.
+But what does that look like practically for you? I want to leave you today with three specific challenges.
 
-**But second, we must celebrate the diversity of all nations.** Though we are unified in the gospel, that does not mean it is colorblind. You hear people say that a lot today, and even if they mean well, that's not actually what the Bible is after when it speaks of ethnic and cultural differences. Instead, the Bible celebrates cultural distinctions as part of the beautiful human mosaic. Humanity is a colorful tapestry, and it was supposed to be that way from the very beginning, and when the kingdom is finally consummated, we will see that diversity on display.
+Making disciples of all nations requires:
 
-Think back to that passage we discussed in Revelation. In John's vision of the new heavens and new earth, cultures are not gone, languages are not gone, and ethnic differences are not gone. If they make it into that perfect world that is to come, they're not a result of the curse of sin. Human diversity was God's plan all along.
+1.  Treating others as more important than yourself.
+2.  Sacrificing for those who are different than you.
+3.  Telling the gospel to others.
 
-On this side of heaven, we should do all we can to see that diversity and celebrate that diversity. We should celebrate diversity in our own church, and we should celebrate churches that are different than our own culturally. For us to reach a city as big as Houston, it will take churches of all shapes and sizes that meet in all kinds of different languages. No one church can do that by itself. This is why partnering and fellowshipping with other churches from different cultures is so important. When we strive for diversity in our church, and celebrate and cooperate with the cultural diversity of other churches, then we start to become a preview for those around us of what is to come.
-l
-## Before we get into the particulars of that mission, I want us to look at that last statement I made. That the mission will not fail. That's a bold claim. How can we even know that is true?
-### Let me give you two quick reasons.
-### Because Christ has all authority.
+I want you to ask yourself, how am I doing on those three things?
 
-First, Jesus begins his commission to the church talking about his authority. The Great Commission is packed full of statements that use the word all. It was Matthew's way of making sure his readers understood just how big this commission is. Notice that the first all statement has nothing to do with us and everything to do with Jesus.
+Making disciples of all nations requires treating others as more important than yourself. When it comes to crossing boundaries and engaging people with a different heritage or culture, that means valuing and appreciating their heritage and culture. We've got to learn to listen and respect. No cultural background is perfect. Sin has affected all of our cultures. But that point should bring humility, not arrogance, when it comes to dealing with others, because it means that sin has left its mark on your heritage too.
 
-Before Jesus delivers the specifics he wants to set one thing straight, this mission is accomplished by his power and authority. Having Jesus’s authority means having all the authority. There is no higher source of authority. These words should be a great comfort to the disciples and to us. After all, if God is for us… who can be against us?
+Making disciples of all nations requires sacrificing for those who are different than you. In a big sense, this is giving up your life so that those different than you can hear the gospel. That's exactly what Paul did in the New Testament. He left his home and traveled away from his own people in order to proclaim God's glory among different people. It's what Paul did, and it's what the Great Commission calls us to do.
 
-### Because it is written in the end.
+In a smaller, more everyday sense, it's going places you wouldn't normally go, being with people you normally wouldn't be with, and doing things you normally wouldn't do. It is setting aside your preferences. It is choosing to cross boundaries created by culture and value what you find on the other side.
 
-But that's not the only way we know this mission will not fail.
+Finally, making disciples of all nations requires actually telling the gospel to others. You do not truly love others if you keep the most important news in history from them.
 
-In God's word to us, he actually gives us a glimpse into the future. One of his disciples named John was persecuted, exiled for being obedient to this commission, and in his exile he was given a vision from God of the things to come. In that vision, Joh
-### to those who are different than us.
+So again, I challenge you to ask yourself, how am I doing these things? Talk together as a family or as a loop group, and encourage one another in these practices. The Great Commission is too important not to.
 
-But I want to press us here. You see, the Great Commission is a call to cross barriers. It calls us to those who are different than us.
-
-In order to do that, to make disciples of all nations, we need to do two very important things:
-
-**First, we must recognize the unity of all nations.** We are all children of Adam. We all descend from those first parents, and no race or ethnicity is more valuable than another. Furthermore, God wants them all. Christ died for them all. In Christ, regardless of our heritage, culture, language, and ethnicity, we all become part of the same family. Matthew says we make disciples of all nations, and we baptize them all into that same family that is the church. There is a unity among all nations.
-
-**But second, we must celebrate the diversity of all nations.** Though we are unified in the gospel, that does not mean it is colorblind. You hear people say that a lot today, and even if they mean well, that's not actually what the Bible is after when it speaks of ethnic and cultural differences. Instead, the Bible celebrates cultural distinctions as part of the beautiful human mosaic. Humanity is a colorful tapestry, and it was supposed to be that way from the very beginning, and when the kingdom is finally consummated, we will see that diversity on display.
+You see, the Great Commission was Jesus's final words to his church before he ascended to heaven. Final words are important words.
+ actually what the Bible is after when it speaks of ethnic and cultural differences. Instead, the Bible celebrates cultural distinctions as part of the beautiful human mosaic. Humanity is a colorful tapestry, and it was supposed to be that way from the very beginning, and when the kingdom is finally consummated, we will see that diversity on display.
 
 Think back to that passage we discussed in Revelation. In John's vision of the new heavens and new earth, cultures are not gone, languages are not gone, and ethnic differences are not gone. If they make it into that perfect world that is to come, they're not a result of the curse of sin. Human diversity was God's plan all along.
 
