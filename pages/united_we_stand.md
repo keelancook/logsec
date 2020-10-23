@@ -7,7 +7,7 @@ title: United We Stand: The Great Commission and Race
 Text: [[Matthew 28:18-20]]
 Topics: [[Great Commission]] | [[Missions]] | [[Race]]
 ---
-## Introduction
+## **Introduction**
 ## At the very center of the Bible’s message is the firm promise that God is going to change the whole world, completely and totally change the world.
 ### That's a big deal, and the Bible actually says more. It says that Christ's church plays a key role in that mission. Two thousand years ago, right after Jesus’ death, burial, and resurrection, he told his church specifically what kind of work they were to be doing. They would be his witnesses, and it was no less than a global mission.
 ### We refer to it today as the Great Commission. It's one of those places in the Bible where we can see so clearly God's love for all people, regardless of their background, their culture, their language, or their ethnicity.
@@ -20,7 +20,8 @@ Topics: [[Great Commission]] | [[Missions]] | [[Race]]
  > The eleven disciples traveled to Galilee, to the mountain where Jesus had directed them. When they saw him, they worshiped, but some doubted. Jesus came near and said to them, “All authority has been given to me in heaven and on earth. Go, therefore, and make disciples of all nations, baptizing them in the name of the Father and of the Son and of the Holy Spirit, teaching them to observe everything I have commanded you. And remember, I am with you always, to the end of the age. (Matthew 28:16-20)### This is what I want you to hear today:
 **Because God loves all nations, Jesus empowers and sends his church on a global mission to proclaim his glory to those who are different than us. And that mission will not fail.**
 #### For the rest of the sermon, I want us to unpack that statement.
-### Let's take a look at the actual passage now:
+# **The Mission Will Not Fail**
+ actual passage now:
  > The eleven disciples traveled to Galilee, to the mountain where Jesus had directed them. When they saw him, they worshiped, but some doubted. Jesus came near and said to them, “All authority has been given to me in heaven and on earth. Go, therefore, and make disciples of all nations, baptizing them in the name of the Father and of the Son and of the Holy Spirit, teaching them to observe everything I have commanded you. And remember, I am with you always, to the end of the age. (Matthew 28:16-20)
 ### The Great Commission is perhaps the most important directive in the Bible for the church. In fact, the whole reason the church exists can be summed up in these words.
 ### David Platt says it this way:
