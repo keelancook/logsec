@@ -22,33 +22,49 @@ Topics: [[Great Commission]] | [[Missions]] | [[Race]]
 #### For the rest of the sermon, I want us to unpack that statement.
 # **The Mission Will Not Fail**
  actual passage now:
- > The eleven disciples traveled to Galilee, to the mountain where Jesus had directed them. When they saw him, they worshiped, but some doubted. Jesus came near and said to them, “All authority has been given to me in heaven and on earth. Go, therefore, and make disciples of all nations, baptizing them in the name of the Father and of the Son and of the Holy Spirit, teaching them to observe everything I have commanded you. And remember, I am with you always, to the end of the age. (Matthew 28:16-20)
-### The Great Commission is perhaps the most important directive in the Bible for the church. In fact, the whole reason the church exists can be summed up in these words.
-### David Platt says it this way:
-> Global mission is the purpose of your life. Everything you have been given in your life – your breath, your salvation, your family, your gifts, your resources, your position – everything you have, you’ve been given for this reason: the spread of God’s global glory.
-### **But hear this:** that mission is no less pressing for us as a local church today than it was for that small band of believers after the resurrection.
-### And back then, a small group of just over 100 people took Christ’s command and promise and sparked the largest, most diverse movement in the history of the world.
-### We refer to it today as the Great Commission. It's one of those places in the Bible where we can see so clearly God's love for all people, regardless of their background, their culture, their language, or their ethnicity.
-### That's a big deal, and the Bible actually says more. It says that Christ's church plays a key role in that mission. Two thousand years ago, right after Jesus’ death, burial, and resurrection, he told his church specifically what kind of work they were to be doing. They would be his witnesses, and it was no less than a global mission.
-### At the very center of the Bible’s message is the firm promise that God is going to change the whole world, completely and totally change the world.
-### That's a big deal, and the Bible actually says more. It says that Christ's church plays a key role in that mission. Two thousand years ago, right after Jesus’ death, burial, and resurrection, he told his church specifically what kind of work they were to be doing. They would be his witnesses, and it was no less than a global mission.
-### We refer to it today as the Great Commission. It's one of those places in the Bible where we can see so clearly God's love for all people, regardless of their background, their culture, their language, or their ethnicity.
-### And back then, a small group of just over 100 people took Christ’s command and promise and sparked the largest, most diverse movement in the history of the world.
-### **But hear this:** that mission is no less pressing for us as a local church today than it was for that small band of believers after the resurrection.
-### David Platt says it this way:
-> Global mission is the purpose of your life. Everything you have been given in your life – your breath, your salvation, your family, your gifts, your resources, your position – everything you have, you’ve been given for this reason: the spread of God’s global glory.
-### The Great Commission is perhaps the most important directive in the Bible for the church. In fact, the whole reason the church exists can be summed up in these words.
-### Let's take a look at the actual passage now:
- > The eleven disciples traveled to Galilee, to the mountain where Jesus had directed them. When they saw him, they worshiped, but some doubted. Jesus came near and said to them, “All authority has been given to me in heaven and on earth. Go, therefore, and make disciples of all nations, baptizing them in the name of the Father and of the Son and of the Holy Spirit, teaching them to observe everything I have commanded you. And remember, I am with you always, to the end of the age. (Matthew 28:16-20)
-## This is what I want you to hear today:
-**Because God loves all nations, Jesus empowers and sends his church on a global mission to proclaim his glory to those who are different than us. And that mission will not fail.**
-## Let's take a look at the actual passage now:
- > The eleven disciples traveled to Galilee, to the mountain where Jesus had directed them. When they saw him, they worshiped, but some doubted. Jesus came near and said to them, “All authority has been given to me in heaven and on earth. Go, therefore, and make disciples of all nations, baptizing them in the name of the Father and of the Son and of the Holy Spirit, teaching them to observe everything I have commanded you. And remember, I am with you always, to the end of the age. (Matthew 28:16-20)
-## The Great Commission is perhaps the most important directive in the Bible for the church. In fact, the whole reason the church exists can be summed up in these words.
-## David Platt says it this way:
-> Global mission is the purpose of your life. Everything you have been given in your life – your breath, your salvation, your family, your gifts, your resources, your position – everything you have, you’ve been given for this reason: the spread of God’s global glory.
-## **But hear this:** that mission is no less pressing for us as a local church today than it was for that small band of believers after the resurrection.
-## And back then, a small group of just over 100 people took Christ’s command and promise and sparked the largest, most diverse movement in the history of the world.
+ > The eleven disciples traveled to Galilee, to the mountain where Jesus had directed them. When they saw him, they worshiped, but some doubted. Jesus came near and said t
+## Let me give you two quick reasons.
+## Because Christ has all authority.
+### First, Jesus begins his commission to the church talking about his authority. The Great Commission is packed full of statements that use the word all. It was Matthew's way of making sure his readers understood just how big this commission is. Notice that the first all statement has nothing to do with us and everything to do with Jesus.
+### Before Jesus delivers the specifics he wants to set one thing straight, this mission is accomplished by his power and authority. Having Jesus’s authority means having all the authority. There is no higher source of authority. These words should be a great comfort to the disciples and to us. After all, if God is for us… who can be against us?
+## Because it is written in the end.
+### But that's not the only way we know this mission will not fail.
+### In God's word to us, he actually gives us a glimpse into the future. One of his disciples named John was persecuted, exiled for being obedient to this commission, and in his exile he was given a vision from God of the things to come. In that vision, John gives us this description of the coming kingdom:
+> After this I looked, and behold, a great multitude that no one could number, from every nation, from all tribes and peoples and languages, standing before the throne and before the Lamb, clothed in white robes, with palm branches in their hands, and crying out with a loud voice, “Salvation belongs to our God who sits on the throne, and to the Lamb!” _~Revelation 7:9-12_
+### Now that's a vision! In the end, after this world is no more and creation moves into the new heavens and new earth, we find an innumerable multitude of disciples. The command to make disciples has been fulfilled. It worked, and there are so many they can't be counted.
+### But it's more than that. Looking at that crowd, John sees people from all tribes, speaking all languages. The global mission has gathered people from all nations, and the result is a diverse mosaic of nationalities and cultures represented around the throne of God, and they are all worshiping the Lamb that was slain for them.
+## Because God loves all nations.
+### Why? Because God loves all nations.
+
+When Christ, in his commission, says "all nations" that means no one is left out of our disciple-making mission. There is no room for preference or discrimination, regardless of current religion, culture, or nationality. That includes those who are in our neighborhoods and those who are on the other side of the world. We have the responsibility to cross both streets and oceans with the gospel. God commissions us, as the church, to take the gospel to people who are different than us.
+
+All nations means there is no distinction based on race or ethnicity concerning the gospel. All people are valuable, because God values all people. 
+
+All nations means there is no exclusion concerning the gospel. No one is worthy of the gospel– no one is– but everyone can be a recipient of the gospel.
+
+All nations means we have a responsibility to those who are different than us, no matter who they may be. Since God loves all nations, all people, regardless of their heritage, so should we.
+
+All nations means we cannot just have a preoccupation with what is familiar. What is comfortable. All nations means we are required to cross some boundaries.
+
+Jesus sends his church...
+--------------------------
+
+And because God loves all nations, Jesus sends his church...
+
+There is a reason the Great Commission starts with the word **go**.
+
+It has been popular at points in church history to say that this commission was only for the 12 apostles. Or, only for pastors and leaders in the church. In fact, a lot of us practice it that way today. We want to say that Jesus told just pastors to make disciples.
+
+The Great Commission in some form shows up in all four Gospel letters (Matthew, Mark, Luke, and John). That's one of the many ways we know it's so important. And, it's very clear when you put them all together that this commission was given to the whole church, to everyone who says they are a Christian.
+
+If you say you're a Christian, by saying that, you are saying you are a disciple maker. A gospel proclaimer. A person who believes there is only one name under heaven by which we can be saved, and that it is your job to tell everyone else about it. All of that is supposed to be packed into the word Christian. Saying you are a Christian and never making disciples, is like saying you're a pilot and not knowing how to fly.
+
+Another real common mistake lately is to make it a passive suggestion. It's become real popular to translate the original Greek here into "as you are going" instead of making it a command. There's even a handful of Christian ministry books that do that today. Unfortunately, that's just not how Greek grammar works. In this passage, the way the word "go" is used, it has the full force of a verb. It's a command, an imperative, from God to his church.
+
+The Great Commission is not telling us to just do life and if we stumble into making a disciple that's good. It is telling us all of our life is supposed to be oriented, redirected, around this last command given by Jesus to his church.
+
+So, we go, and we go to the nations. We're not supposed to sit around and wait on them to come to us.
+ry of the world.
 ## We refer to it today as the Great Commission. It's one of those places in the Bible where we can see so clearly God's love for all people, regardless of their background, their culture, their language, or their ethnicity.
 ## That's a big deal, and the Bible actually says more. It says that Christ's church plays a key role in that mission. Two thousand years ago, right after Jesus’ death, burial, and resurrection, he told his church specifically what kind of work they were to be doing. They would be his witnesses, and it was no less than a global mission.
 ## At the very center of the Bible’s message is the firm promise that God is going to change the whole world, completely and totally change the world.
