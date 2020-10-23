@@ -3,11 +3,10 @@ title: United We Stand
 ---
 
 ## United We Stand: The Great Commission and Race
-###
+### _Meta_
 ---
 Text: [[Matthew 28:18-20]]
 Topics: [[Great Commission]] | [[Missions]] | [[Race]]
-
 ---
 ### At the very center of the Bible’s message is the firm promise that God is going to change the whole world, completely and totally change the world.
 ### That's a big deal, and the Bible actually says more. It says that Christ's church plays a key role in that mission. Two thousand years ago, right after Jesus’ death, burial, and resurrection, he told his church specifically what kind of work they were to be doing. They would be his witnesses, and it was no less than a global mission.
