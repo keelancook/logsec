@@ -13,8 +13,6 @@ Topics: [[Great Commission]] | [[Missions]] | [[Race]]
 Date: SCHEDULED: <2020-10-25 Sun>
  ---
 # **The Mission Will Not Fail**
- actual passage now:
- > The eleven disciples traveled to Galilee, to the mountain where Jesus had directed them. When they saw him, they worshiped, but some doubted. Jesus came near and said t
 ## Let me give you two quick reasons.
 ## Because Christ has all authority.
 ### First, Jesus begins his commission to the church talking about his authority. The Great Commission is packed full of statements that use the word all. It was Matthew's way of making sure his readers understood just how big this commission is. Notice that the first all statement has nothing to do with us and everything to do with Jesus.
