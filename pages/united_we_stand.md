@@ -1,6 +1,6 @@
 ---
 title: United We Stand: The Great Commission and Race
-published: true
+published: false
 permalink: united%20we%20stand%3A%20the%20great%20commission%20and%20race
 slide: true
 ---
