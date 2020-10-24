@@ -144,8 +144,10 @@ All nations means we cannot just have a preoccupation with what is familiar. Wha
 ## On this side of heaven, we should do all we can to see that diversity and celebrate that diversity. We should celebrate diversity in our own church, and we should celebrate churches that are different than our own culturally. For us to reach a city as big as Houston, it will take churches of all shapes and sizes that meet in all kinds of different languages. No one church can do that by itself. This is why partnering and fellowshipping with other churches from different cultures is so important. When we strive for diversity in our church, and celebrate and cooperate with the cultural diversity of other churches, then we start to become a preview for those around us of what is to come.
 # **Application**
 ## Let's recap:
-## Because God loves all nations, Jesus empowers and sends his church on a global mission to proclaim his glory to those who are different than us.
-## But what does that look like practically for you? I want to leave you today with three specific challenges.
+
+Because God loves all nations, Jesus empowers and sends his church on a global mission to proclaim his glory to those who are different than us.
+
+But what does that look like practically for you? I want to leave you today with three specific challenges.
 ## Making disciples of all nations requires:
 1.  Treating others as more important than yourself.
 2.  Sacrificing for those who are different than you.
