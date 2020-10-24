@@ -35,6 +35,24 @@ We refer to it today as the Great Commission. It's one of those places in the Bi
 ### **But hear this:** that mission is no less pressing for us as a local church today than it was for that small band of believers after the resurrection.
 ### And back then, a small group of just over 100 people took Christ’s command and promise and sparked the largest, most diverse movement in the history of the world.
 #### **But hear this:** that mission is no less pressing for us as a local church today than it was for that small band of believers after the resurrection.
+#### And back then, a small group of just over 100 people took Christ’s command and promise and sparked the largest, most diverse movement in the history of the world.
+#### **But hear this:** that mission is no less pressing for us as a local church today than it was for that small band of believers after the resurrection.
+### David Platt says it this way:
+> Global mission is the purpose of your life. Everything you have been given in your life – your breath, your salvation, your family, your gifts, your resources, your position – everything you have, you’ve been given for this reason: the spread of God’s global glory.
+### **But hear this:** that mission is no less pressing for us as a local church today than it was for that small band of believers after the resurrection.
+### And back then, a small group of just over 100 people took Christ’s command and promise and sparked the largest, most diverse movement in the history of the world.
+#### **But hear this:** that mission is no less pressing for us as a local church today than it was for that small band of believers after the resurrection.
+#### David Platt says it this way:
+> Global mission is the purpose of your life. Everything you have been given in your life – your breath, your salvation, your family, your gifts, your resources, your position – everything you have, you’ve been given for this reason: the spread of God’s global glory.
+### The Great Commission is perhaps the most important directive in the Bible for the church. In fact, the whole reason the church exists can be summed up in these words.
+### David Platt says it this way:
+> Global mission is the purpose of your life. Everything you have been given in your life – your breath, your salvation, your family, your gifts, your resources, your position – everything you have, you’ve been given for this reason: the spread of God’s global glory.
+### **But hear this:** that mission is no less pressing for us as a local church today than it was for that small band of believers after the resurrection.
+### **But hear this:** that mission is no less pressing for us as a local church today than it was for that small band of believers after the resurrection.
+### **But hear this:** that mission is no less pressing for us as a local church today than it was for that small band of believers after the resurrection.
+### **But hear this:** that mission is no less pressing for us as a local church today than it was for that small band of believers after the resurrection.
+### And back then, a small group of just over 100 people took Christ’s command and promise and sparked the largest, most diverse movement in the history of the world.
+#### **But hear this:** that mission is no less pressing for us as a local church today than it was for that small band of believers after the resurrection.
 #### David Platt says it this way:
 > Global mission is the purpose of your life. Everything you have been given in your life – your breath, your salvation, your family, your gifts, your resources, your position – everything you have, you’ve been given for this reason: the spread of God’s global glory.
 ### The Great Commission is perhaps the most important directive in the Bible for the church. In fact, the whole reason the church exists can be summed up in these words.
