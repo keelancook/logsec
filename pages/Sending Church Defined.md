@@ -1,0 +1,4 @@
+---
+title: Sending Church Defined
+---
+

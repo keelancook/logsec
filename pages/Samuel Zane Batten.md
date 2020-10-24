@@ -1,0 +1,4 @@
+---
+title: Samuel Zane Batten
+---
+

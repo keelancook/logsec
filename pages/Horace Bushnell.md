@@ -1,0 +1,4 @@
+---
+title: Horace Bushnell
+---
+

@@ -1,0 +1,4 @@
+---
+title: Gilded Age Syncretism
+---
+

@@ -1,0 +1,4 @@
+---
+title: Albrecht Ritschl
+---
+

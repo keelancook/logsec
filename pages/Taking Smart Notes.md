@@ -1,0 +1,4 @@
+---
+title: Taking Smart Notes
+---
+
