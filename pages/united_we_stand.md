@@ -5,10 +5,12 @@ permalink: united%20we%20stand%3A%20the%20great%20commission%20and%20race
 ---
 
 ## _Info_
+SCHEDULED: <2020-10-25 Sun>
 ---
 Text: [[Matthew 28:18-20]]
 Topics: [[Great Commission]] | [[Missions]] | [[Race]]
----
+Date: 
+ ---
 ## **Introduction**
 ### At the very center of the Bible’s message is the firm promise that God is going to change the whole world, completely and totally change the world. 
 
