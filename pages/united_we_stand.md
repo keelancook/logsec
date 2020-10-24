@@ -36,6 +36,8 @@ We refer to it today as the Great Commission. It's one of those places in the Bi
 ### The Great Commission is perhaps the most important directive in the Bible for the church. In fact, the whole reason the church exists can be summed up in these words.
 ### David Platt says it this way:
 > Global mission is the purpose of your life. Everything you have been given in your life – your breath, your salvation, your family, your gifts, your resources, your position – everything you have, you’ve been given for this reason: the spread of God’s global glory.
+### David Platt says it this way:
+> Global mission is the purpose of your life. Everything you have been given in your life – your breath, your salvation, your family, your gifts, your resources, your position – everything you have, you’ve been given for this reason: the spread of God’s global glory.
 ### **But hear this:** that mission is no less pressing for us as a local church today than it was for that small band of believers after the resurrection.
 #### David Platt says it this way:
 > Global mission is the purpose of your life. Everything you have been given in your life – your breath, your salvation, your family, your gifts, your resources, your position – everything you have, you’ve been given for this reason: the spread of God’s global glory.
@@ -43,7 +45,7 @@ We refer to it today as the Great Commission. It's one of those places in the Bi
 ### Let's take a look at the actual passage now:
  > The eleven disciples traveled to Galilee, to the mountain where Jesus had directed them. When they saw him, they worshiped, but some doubted. Jesus came near and said to them, “All authority has been given to me in heaven and on earth. Go, therefore, and make disciples of all nations, baptizing them in the name of the Father and of the Son and of the Holy Spirit, teaching them to observe everything I have commanded you. And remember, I am with you always, to the end of the age. (Matthew 28:16-20)### This is what I want you to hear today:
 **Because God loves all nations, Jesus empowers and sends his church on a global mission to proclaim his glory to those who are different than us. And that mission will not fail.**
-#### For the rest of the sermon, I want us to unpack that statement.
+### For the rest of the sermon, I want us to unpack that statement.
 ### The Great Commission is perhaps the most important directive in the Bible for the church. In fact, the whole reason the church exists can be summed up in these words.
 ### David Platt says it this way:
 > Global mission is the purpose of your life. Everything you have been given in your life – your breath, your salvation, your family, your gifts, your resources, your position – everything you have, you’ve been given for this reason: the spread of God’s global glory.
